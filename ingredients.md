@@ -1,0 +1,9 @@
+- 2 cups pumpkin puree 
+- 3/4 cup packed light brown sugar
+- 1 tablespoon ground cinnamon
+- 1 tablespoon ground ginger
+- 1/2 tablespoon ground allspice
+- 1/2 tablespoon ground nutmeg
+- 3 eggs
+- 3/4 cup heavy whipping cream
+- 2 tablespoon pure maple syrup
